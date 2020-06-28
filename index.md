@@ -7,3 +7,6 @@ Geredet wird in "Pulp Fiction" wirklich viel. Selbst ueber Fussmassagen wird dis
 * Liebt schöne Frauen
 * Raucht Grass
 
+> Stellt euch vor, es geht. Und keiner kriegt es hin.
+
+<img src="https://commons.wikimedia.org/wiki/File:John_Travolta_Cannes_2018_(cropped).jpg#/media/Datei:John_Travolta_Cannes_2018_(cropped).jpg"/>
