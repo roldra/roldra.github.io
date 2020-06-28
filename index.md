@@ -7,3 +7,5 @@ Geredet wird in "Pulp Fiction" wirklich viel. Selbst ueber Fussmassagen wird dis
 * Liebt schöne Frauen
 * Raucht Grass
 
+> Stellt euch vor, es geht. Und keiner kriegt es hin.
+
